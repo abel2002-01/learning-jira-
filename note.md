@@ -1,1 +1,1 @@
-# note 
+# note for the scrum 6
